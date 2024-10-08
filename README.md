@@ -4,7 +4,7 @@
 - 🤝🏻 I’m looking for a tech customer service job where I could be the liaison between customers and developers (I have extensive customer service experience) while I continue my studies to become a developer myself
 - 📫 How to reach me: eliana.zah@gmail.com or https://www.linkedin.com/in/eliana-zaharia-danicov-23406a1ba/?locale=en_US
 - 😊 Pronouns: her/she
-- ⚡ Fun fact: I love interior design, arts&crafts, travel, animals/pets, emojis and puns 😄
+- ⚡ Fun fact: I love interior design, arts&crafts, travel, dance, animals/pets, emojis and puns 😄
 
 <!---
 eliana-zah/eliana-zah is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

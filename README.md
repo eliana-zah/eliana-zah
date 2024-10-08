@@ -5,8 +5,3 @@
 - 📫 How to reach me: eliana.zah@gmail.com or https://www.linkedin.com/in/eliana-zaharia-danicov-23406a1ba/?locale=en_US
 - 😊 Pronouns: her/she
 - ⚡ Fun fact: I love interior design, arts&crafts, travel, dance, animals/pets, emojis and puns 😄
-
-<!---
-eliana-zah/eliana-zah is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
